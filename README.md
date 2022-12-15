@@ -1,0 +1,1 @@
+# rikalestari_2006173_tugas_pengolahan_citra
